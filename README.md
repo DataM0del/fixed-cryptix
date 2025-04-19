@@ -1,2 +1,5 @@
-# Discord:
-https://discord.gg/TpqjzRZmKM
+# Cryptix X ChatGPT X Virtue Skidding X Skidding X LiquidBounce Skidding X Masterof13FPS forgot to indent pasted code Skidding
+
+Sponsored by ChatGPT X Virtue Skidding X LiquidBounce Skidding X Masterof13FPS forgot to indent pasted code Skidding,
+Today We Fall Into The Depths Of The Cryptix Client, Version 1.8.9 Raven pate. This Client Is Free And Developed By Tear And Cedo.
+The People Who Use This Client Are Fairly Retarded Fans Of The Developers, And They Fan Them Until It Gets Trolled.
